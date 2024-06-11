@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **21311A05M4@sreenidhi.edu.in**
 
-- 📄 Know about my experiences [file:///C:/Users/SANGEETHA/Desktop/Resume/san%20resume.pdf](file:///C:/Users/SANGEETHA/Desktop/Resume/san%20resume.pdf)
+- 📄 Know about my experiences https://drive.google.com/file/d/1-pLN6mFhGIFgJ-5qppPRZFWHhXgWBuCU/view?usp=drive_link
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
